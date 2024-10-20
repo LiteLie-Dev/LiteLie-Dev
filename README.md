@@ -1,0 +1,6 @@
+- 👋 Oi, I’m @LiteLie-Dev
+- 👀 Estou interessado em desenvolver e aprender
+- 💞️ Eu quero colaborar em projetos interativos
+- 📫 Como me contactar ...
+- ⚡ Fato divertido: Gosto de fazer projetos com várias pessoas, só que
+  não tenho muitos amigos para isso...
